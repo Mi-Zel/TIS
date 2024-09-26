@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Ján Radovan Zubo
 2. Ivana Zeleňáková
 3.
-4.
+4. Mikuláš Zelenák
