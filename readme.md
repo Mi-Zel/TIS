@@ -13,9 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Ján Radovan Zubo
-2.
-3. Mariia Lementa
-4.
-2. Ivana Zeleňáková
-3.
+2. Mariia Lementa
+3. Ivana Zeleňáková
 4. Mikuláš Zelenák
