@@ -16,3 +16,6 @@ Nas tim tvoria clenovia:
 2.
 3. Mariia Lementa
 4.
+2. Ivana Zeleňáková
+3.
+4. Mikuláš Zelenák
