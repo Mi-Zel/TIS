@@ -14,5 +14,5 @@ Nas tim tvoria clenovia:
 
 1. Ján Radovan Zubo
 2.
-3.
+3. Mariia Lementa
 4.
